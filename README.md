@@ -1,8 +1,9 @@
 # videostorage
 video storage
-for waifu ai self made by unaffectionately. 
+for waifu ai self made by unaffectionately. 13 videos
 
 https://github.com/v6y4/videostorage/assets/121084767/5c611061-d09b-4e04-8669-0d2eeb73253d
+
 https://github.com/v6y4/videostorage/assets/121084767/72e85359-77f1-4e53-83bd-99bb507f30ba
 
 
@@ -23,6 +24,10 @@ https://github.com/v6y4/videostorage/assets/121084767/e711d441-834f-42b1-9863-f8
 
 
 https://github.com/v6y4/videostorage/assets/121084767/0168c1fb-84fa-48ff-ad08-5c2e5dc07620
+
+
+
+https://github.com/v6y4/videostorage/assets/121084767/60935ee8-fdea-4ed8-9a0b-6c96f75a5ba0
 
 
 
