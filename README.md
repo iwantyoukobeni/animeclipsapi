@@ -4,6 +4,26 @@ for waifu ai self made by unaffectionately.
 
 
 
+https://github.com/v6y4/videostorage/assets/121084767/abbcf082-da29-4256-8bee-ee5fa36dfba0
+
+
+
+https://github.com/v6y4/videostorage/assets/121084767/aeb46bb4-bcbf-4307-b240-e4d95d5c17d3
+
+
+
+https://github.com/v6y4/videostorage/assets/121084767/a37049a7-bff2-431a-ae1f-c3bec9c24350
+
+
+
+https://github.com/v6y4/videostorage/assets/121084767/3b5dd542-5072-4df5-bac7-1f7d059da8c5
+
+
+
+https://github.com/v6y4/videostorage/assets/121084767/7df80d18-42f0-4d5e-a928-5571611edc70
+
+
+
 https://github.com/v6y4/videostorage/assets/121084767/7fe51775-6b1d-4cd1-ba61-318c512d1d7d
 
 
