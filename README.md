@@ -64,6 +64,7 @@ https://github.com/v6y4/videostorage/assets/121084767/380cff84-4c09-4537-9da9-03
 
 https://github.com/v6y4/videostorage/assets/121084767/5c611061-d09b-4e04-8669-0d2eeb73253d
 
+
 https://github.com/v6y4/videostorage/assets/121084767/72e85359-77f1-4e53-83bd-99bb507f30ba
 
 
@@ -79,7 +80,7 @@ https://github.com/v6y4/videostorage/assets/121084767/667bf8ea-58fe-48b3-8bf4-bd
 
 
 
-https://github.com/v6y4/videostorage/assets/121084767/a01e879d-9c92-4180-9c01-aeab9f36159b (new)
+https://github.com/v6y4/videostorage/assets/121084767/a01e879d-9c92-4180-9c01-aeab9f36159b 
 
 
 
