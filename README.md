@@ -1,6 +1,6 @@
 # videostorage
 video storage
-for waifu ai self made by unaffectionately. 13 videos
+for waifu ai self made by unaffectionately. 
 
 
 
