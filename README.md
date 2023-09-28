@@ -1,6 +1,3 @@
-# videostorage
-video storage
-for waifu ai self made by unaffectionately. 
 
 
 
